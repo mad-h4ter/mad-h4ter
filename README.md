@@ -1,5 +1,7 @@
-
 <div align=center
+
+![Image Alt](https://github.com/mad-h4ter/mad-h4ter/blob/main/Post%20by%20@1990smallgoth%20%C2%B7%201%20image.jpg?raw=true)
+
 
   ![](https://komarev.com/ghpvc/?username=mad-h4ter&style=plastic&color=f4495a&label=Bricks)
 
@@ -24,4 +26,4 @@
 
 
 ----------- [Pronouns.page](https://en.pronouns.page/@Mr.Gato)
-
+}
