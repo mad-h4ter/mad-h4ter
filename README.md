@@ -9,6 +9,9 @@
   
   
 #  (thats my shrimpo kinsona btw bahahhah)
+  this me and him btw 
+![Image Alt](https://media.tenor.com/bh4_Jc40JdwAAAAM/skittlesiskewl-havuky.gif)
+
 -------------------------------- [新book](https://discomrgato.atabook.org) 
   
   
@@ -16,3 +19,4 @@
 
 
 ----------- [Pronouns.page](https://en.pronouns.page/@Mr.Gato)
+
