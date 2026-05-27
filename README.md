@@ -2,7 +2,7 @@
 
  ![Image Alt](https://media.tenor.com/Z92kFT9J7JIAAAAj/divider.gif)
 
-![Image Alt](https://github.com/mad-h4ter/mad-h4ter/blob/main/DiscoShrimpoGato.png?raw=true)
+![Image Alt](https://github.com/mad-h4ter/mad-h4ter/blob/main/DiscoShrimpoGato%20(1).png?raw=true)
 
 
   
