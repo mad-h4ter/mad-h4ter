@@ -8,7 +8,7 @@
   
   
   
-#  
+#  (thats my shrimpo kinsona btw bahahhah)
 -------------------------------- [新book](https://discomrgato.atabook.org) 
   
   
