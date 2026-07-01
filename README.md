@@ -4,7 +4,7 @@
 
   ![](https://komarev.com/ghpvc/?username=mad-h4ter&style=flat&color=aceb41&label=Losers) 
 
-  [atabook](https://discomrgato.atabook.org) [strawpage](.)
+  [atabook](https://discomrgato.atabook.org) [strawpage (wip) ](.)
   
  <div align=right
 
