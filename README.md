@@ -10,6 +10,4 @@
 
   ![Image Alt](https://github.com/mad-h4ter/mad-h4ter/blob/main/16%20sin%20t%C3%ADtulo_20260701123531.png?raw=true)
 
-<img width="250" height="198" alt="image" src="https://github.com/user-attachments/assets/c98f8b7d-55cc-43e2-aa91-ef8a3446ee30" />
 
- <div align=center
